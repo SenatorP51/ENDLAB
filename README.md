@@ -1,0 +1,2 @@
+# ENDLAB
+przeciez wiadomo
